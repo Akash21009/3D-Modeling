@@ -4,4 +4,7 @@
 ![d3b23939-b8ce-4947-a339-b62e1db4f809](https://github.com/user-attachments/assets/0fafcc81-4dd9-4c8e-98d4-1b358f9f2c3a)
 ![0d23b818-6ded-4ba4-a016-3e16cbbf9894](https://github.com/user-attachments/assets/0dcb88a9-16d0-41a6-8c85-b9abcfde323c)
 
+2. Product Showcase : Valentino uomo
+![7b1b0d27-6f6b-4ced-a939-1f9b8f72c803](https://github.com/user-attachments/assets/f9fce986-7b36-4c2b-a01e-df4ce2fbf985)
+
 
